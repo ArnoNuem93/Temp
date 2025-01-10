@@ -6,8 +6,8 @@ For use on reddit/soundgasm. Please ask me before posting anywhere else.
  
 Feel free to improvise or make changes to the script as long as you keep the main idea intact.
  
-Please don't use binaural beats if you record this. If you'd like to make a version with and without binaural beats that's fine too.
- 
+--------------------------------------------------------------------------------------------------------------
+
 You shouldn't be listening to this.
  
 You know what's going to happen.
